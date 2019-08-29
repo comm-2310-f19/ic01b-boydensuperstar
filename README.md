@@ -12,4 +12,9 @@
 
 1. My favorite YouTube channel is *Defunctland*
 
+1. My favorite videogame genre is *RPG*
+
+1. My favorite videogame is *Megaman X*
+
+1. My favorite pokemon or videogame character is *pikachu*
 
